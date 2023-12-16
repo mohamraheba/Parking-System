@@ -110,7 +110,7 @@ Thats All
 
 # Links for Presentation
 https://www.canva.com/design/DAF3BjSvZEE/leuBDKOjRZ8M34FeGJ4NDQ/edit?utm_content=DAF3BjSvZEE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
-
+https://t.me/suranovasua
 
 
 
